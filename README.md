@@ -28,7 +28,7 @@ infp-t , меланхолик , бешеная фанатка галладеев
 
 # Fandoms:
 
-hsr , gi , crk , alien stage , slow damage , zzz , okegom , arcane , wuwa , pjsk , jujutsu kaisen , bllk , hi3rd , link click , squid game , tgcf , saihate station , zeno remake , shtdn , mouthwashing , bsd and others!
+hsr , gi , crk , alien stage , slow damage , zzz , okegom , arcane , wuwa , pjsk , jujutsu kaisen , bllk , hi3rd , link click , squid game , tgcf , saihate station , zeno remake , shtdn , mouthwashing , bsd , no salvation and others!
 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/61275fec-9022-409e-ae7a-2e9914cba419" width="100"
