@@ -36,7 +36,7 @@ hsr , gi , crk , alien stage , slow damage , zzz , okegom , arcane , wuwa , pjsk
 
 # My favorite pairings:
 
-gallagher/sunday , ratio/aventurine , robin/boothill , ivan/till , maeno/tsugino , dazai/chuuya , satanick/ivlis , gojo/geto , jane doe/seth lowell , scar/rover , anaxa/me (саша, поделим!)
+gallagher/sunday , ratio/aventurine , robin/boothill , ivan/till , maeno/tsugino , dazai/chuuya , satanick/ivlis , gojo/geto , jane doe/seth lowell , scar/rover , Kaiser/ness , anaxa/me (саша, поделим!)
 
 ---
 
