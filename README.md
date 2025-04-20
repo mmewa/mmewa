@@ -69,7 +69,7 @@ gallagher/sunday , ratio/aventurine , robin/boothill , ivan/till , maeno/tsugino
 
 # My fav music artists:
 
-VANA , FORTUNA 812 , pepel nahudi , odetari , IC3PEAK , she wants revenge , юпи , insane clown posse , ПОЛМАТЕРИ , DADAROMA , тринадцать карат , black dresses , тдд , rizza and others !
+VANA , FORTUNA 812 , pepel nahudi , odetari , IC3PEAK , she wants revenge , юпи , insane clown posse , ПОЛМАТЕРИ , DADAROMA , тринадцать карат , black dresses , тдд , rizza , bizz , zera and others !
 
 <div align="center">
   <img src="https://media.tenor.com/YQUZ1vSUreoAAAAi/anaxa-hsr-anaxa.gif" width="100"
