@@ -80,3 +80,27 @@ VANA , FORTUNA 812 , pepel nahudi , odetari , IC3PEAK , she wants revenge , юп
 <div align="center">
   <img src="https://media1.tenor.com/m/qrk_2uEbM4IAAAAd/anaxa-anaxagoras.gif" width="600" height="300"/>
 </div>
+
+---
+
+# for my besties!!!
+
+#### alex fr  <img src="https://media1.tenor.com/m/hudQdcUk-hgAAAAd/sunday-sunday-hsr.gif" width="200" height="100"/>
+</div>
+
+#### my hehe girl neo  <img src="https://media1.tenor.com/m/O9q2zQacuH4AAAAd/omori-sunny.gif" width="100" height="100"/>
+</div>
+
+#### финнтус(вантуз) главный кинн geto suguru)))) <img src="https://media.tenor.com/jYF1jGpu_0cAAAAi/geto-suguru-geto-suguru-twerk-slay.gif" width="100" height="100"/>
+</div>
+
+#### silly margarita <img src="https://media1.tenor.com/m/rVD6HaSJHzcAAAAd/colombina.gif" width="100" height="100"/>
+</div>
+
+#### nika robloxovna <img src="https://media1.tenor.com/m/Ok-wcgx5R0IAAAAd/genshin-impact-yoimiya.gif" width="100" height="100"/>
+</div>
+
+#### олег и рома FR <img src="https://media1.tenor.com/m/Ku7ACrCgl2QAAAAd/hertamei-herta.gif" width="100" height="100"/>
+</div>
+
+#### nika dottoc*st (ака говно на голове) <img src="https://media.tenor.com/6kW3O6KEIGYAAAAi/dottore-genshin-impact.gif" width="50" height="50"/> <img src="https://media.tenor.com/Klc-NM1h_oUAAAAi/poo-poop.gif" width="50" height="50"/> <img src="https://media.tenor.com/6kW3O6KEIGYAAAAi/dottore-genshin-impact.gif" width="50" height="50"/>
