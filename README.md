@@ -91,7 +91,7 @@ VANA , FORTUNA 812 , pepel nahudi , odetari , IC3PEAK , she wants revenge , юп
 #### my hehe girl neo  <img src="https://media1.tenor.com/m/O9q2zQacuH4AAAAd/omori-sunny.gif" width="100" height="100"/>
 </div>
 
-#### финнтус(вантуз) главный кинн geto suguru)))) <img src="https://media.tenor.com/jYF1jGpu_0cAAAAi/geto-suguru-geto-suguru-twerk-slay.gif" width="100" height="100"/>
+#### финн главный кинн geto suguru)))) <img src="https://media.tenor.com/jYF1jGpu_0cAAAAi/geto-suguru-geto-suguru-twerk-slay.gif" width="100" height="100"/>
 </div>
 
 #### silly margarita <img src="https://media1.tenor.com/m/rVD6HaSJHzcAAAAd/colombina.gif" width="100" height="100"/>
