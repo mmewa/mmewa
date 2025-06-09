@@ -1,9 +1,9 @@
 <div align="center">
 
-# <3
+# hellooooo
 
 <div align="center">
-  <img src="https://media1.tenor.com/m/Z5AmrfbL1-UAAAAC/anaxa-hsr-anaxa.gif" width="600" height="300"/>
+  <img src="https://github.com/user-attachments/assets/d1180266-c7d7-40a0-858f-cc6e0b99e560" width="300" height="300"/>
 </div>
 
 ---
@@ -14,82 +14,80 @@
 
 [целуй меня в лицо] а теперь разберу ситуацию почему ты считаешься проблематиком, если просто общаешься с ариной
 
-infp-t , меланхолик , бешеная фанатка галладеев , делаю эдиты , просто проблематик! (шутка), всегда открыта к различным знакомствам :3
+infp-t , меланхолик , делаю эдиты , просто проблематик! (шутка), всегда открыта к различным знакомствам :3
 
 подписывайтесь на мой тик ток у меня там эдиты раз в год ( ну пожалуйста ) @_mewwa
 
 # My kinn list:
 
-aventurine (hsr) , jing yuan (hsr) , mafuyu (pjsk) , geto suguru (jjk) , ivlis (okegom) , ivan (alnst) , kaiser (bllk) , evelyn (zzz) , hu tao (gi) , dazai (bsd) , tsugino haru (zeno) , maya higuchi (no salvation)
+mafuyu (pjsk) , geto suguru (jjk) , ivlis (okegom) , ivan (alnst) , kaiser (bllk) , hu tao (gi) , dazai (bsd) , azure (forsaken)
 
 ---
 
 <div align="center">
-  <img src="https://media1.tenor.com/m/7U9d6-nj_twAAAAC/anaxa-anaxagoras.gif" width="600"
+  <img src="https://media1.tenor.com/m/QeoRdTTlna8AAAAd/azuretime-two-time.gif" width="600"
 </div>
 
 ---
 
 # Fandoms:
 
-hsr , gi , crk , alien stage , slow damage , zzz , okegom , arcane , wuwa , pjsk , jujutsu kaisen , bllk , hi3rd , link click , squid game , tgcf , saihate station , zeno remake , shtdn , mouthwashing , bsd , no salvation and others!
+forsaken , hsr , gi , crk , alnst , slow damage , zzz , okegom , arcane , wuwa , pjsk , jujutsu kaisen , bllk , hi3rd , link click , squid game , tgcf , saihate station , zeno remake , shtdn , mouthwashing , bsd , no salvation and others!
 
 <div align="center">
-  <img src="https://github.com/user-attachments/assets/61275fec-9022-409e-ae7a-2e9914cba419" width="100"
+  <img src="https://media1.tenor.com/m/GGMutaTHXqQAAAAd/two-time-forsaken.gif" width="100"
 </div>
 
 # My favorite pairings:
 
-gallagher/sunday , ratio/aventurine , robin/boothill , ivan/till , maeno/tsugino , dazai/chuuya , satanick/ivlis , gojo/geto , jane doe/seth lowell , scar/rover , Kaiser/ness , anaxa/me (саша, поделим!)
+gallagher/sunday , gojo/geto , azure/two time 
 
 ---
 
 <div align="center">
-  <img src="https://media1.tenor.com/m/xR2XFfrRR_EAAAAC/anaxagoras-anaxa.gif" width="500"
+  <img src="https://media1.tenor.com/m/L_BnLv9j-pYAAAAd/forsaken-roblox.gif" width="500"
 </div>
 
 ---
 
 # DNI:
 
-в фав пейрингах онли гетеро/онли лгбт+ , toxic , перегибающий палку рофл , расизм , игроки в пони таун (шучу) , АВАНКОРКИ , мизогиния , фаны идентити/кантрихьюманс/андертейл , гомофобы , тфобы , пошлая молли
-
-# C + H:
-
-анакса , роблокс хаус , шарящие за мои фд , не навязывающие свое мнение люди !
+в фав пейрингах онли гетеро/онли лгбт+ , toxic , перегибающий палку рофл , расизм , мизогиния , гомофобы , тфобы , русофобы , роза
 
 ---
 
 
 <div align="center">
-  <img src="https://media1.tenor.com/m/eKaXu3adGscAAAAd/honkai-honkai-star-rail.gif" width="500"
+  <img src="https://media1.tenor.com/m/STCUfNCwzCgAAAAC/azuretime-azuretime-forsaken.gif" width="500"
 </div>
 
 ---
 
 # My fav music artists:
 
-VANA , FORTUNA 812 , pepel nahudi , odetari , IC3PEAK , she wants revenge , юпи , insane clown posse , ПОЛМАТЕРИ , DADAROMA , тринадцать карат , black dresses , тдд , rizza , bizz , zera and others !
+VANA , FORTUNA 812 , pepel nahudi , odetari , IC3PEAK , юпи , DADAROMA , тринадцать карат , black dresses , тдд and others !
 
 <div align="center">
-  <img src="https://media.tenor.com/YQUZ1vSUreoAAAAi/anaxa-hsr-anaxa.gif" width="100"
+  <img src="https://media1.tenor.com/m/kWYqYXzSx68AAAAd/azuretime-azure.gif" width="100"
 </div>
 
 целуй меня в лицо] а говно в сиськах
 
 <div align="center">
-  <img src="https://media1.tenor.com/m/qrk_2uEbM4IAAAAd/anaxa-anaxagoras.gif" width="600" height="300"/>
+  <img src="https://media1.tenor.com/m/RSG18XjjKR8AAAAd/azure-time-roblox-forsaken.gif" width="600" height="300"/>
 </div>
 
 ---
 
 # for my besties!!!
 
+#### me and anya <img src="https://media1.tenor.com/m/z9A68piuGcQAAAAd/azuretime-forsaken.gif" width="100" height="100"/>
+</div>
+
 #### alex fr  <img src="https://media1.tenor.com/m/hudQdcUk-hgAAAAd/sunday-sunday-hsr.gif" width="200" height="100"/>
 </div>
 
-#### my hehe girl neo  <img src="https://media1.tenor.com/m/O9q2zQacuH4AAAAd/omori-sunny.gif" width="100" height="100"/>
-</div>
+#### my hehe girl neo  
 
 #### финн главный кинн geto suguru)))) <img src="https://media.tenor.com/jYF1jGpu_0cAAAAi/geto-suguru-geto-suguru-twerk-slay.gif" width="100" height="100"/>
 </div>
