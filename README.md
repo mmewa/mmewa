@@ -87,7 +87,8 @@ VANA , FORTUNA 812 , pepel nahudi , odetari , IC3PEAK , юпи , DADAROMA , тр
 #### alex fr  <img src="https://media1.tenor.com/m/hudQdcUk-hgAAAAd/sunday-sunday-hsr.gif" width="200" height="100"/>
 </div>
 
-#### my hehe girl neo  
+#### my hehe girl neo  <img src="https://media.tenor.com/qWl6bZf18BgAAAAi/omori-spin-spin.gif" width="200" height="100"/>
+</div>
 
 #### финн главный кинн geto suguru)))) <img src="https://media.tenor.com/jYF1jGpu_0cAAAAi/geto-suguru-geto-suguru-twerk-slay.gif" width="100" height="100"/>
 </div>
