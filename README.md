@@ -81,9 +81,6 @@ VANA , FORTUNA 812 , pepel nahudi , odetari , IC3PEAK , юпи , DADAROMA , тр
 
 # for my besties!!!
 
-#### me and anya <img src="https://media1.tenor.com/m/z9A68piuGcQAAAAd/azuretime-forsaken.gif" width="100" height="100"/>
-</div>
-
 #### alex fr  <img src="https://media1.tenor.com/m/hudQdcUk-hgAAAAd/sunday-sunday-hsr.gif" width="200" height="100"/>
 </div>
 
