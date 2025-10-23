@@ -14,7 +14,9 @@
 
 [целуй меня в лицо] а теперь разберу ситуацию почему ты считаешься проблематиком, если просто общаешься с ариной
 
-infp-t , so4w5 , ESI , FEVL , меланхолик , делаю эдиты , просто проблематик! (шутка), всегда открыта к различным знакомствам :3
+infp-t , so4w5 , ESI , FEVL , меланхолик , делаю эдиты , просто проблематик!
+
+afk 24/7 если не отвечаю в виспере ПРОШУ не спамьте
 
 # My kinn list:
 
@@ -32,6 +34,8 @@ mafuyu (pjsk) , geto suguru (jjk) , ivlis (okegom) , ivan (alnst) , kaiser (bllk
 
 hoyogames , crk , alnst , slow damage , okegom , arcane , wuwa , pjsk , jujutsu kaisen , bllk , link click , squid game , tgcf , saihate station , marutoku games , mouthwashing , bsd , windbreaker , gachiakuta , hollow knight and others!
 
+а лучше спрашивайте лично, я не так часто обновляю этот список...
+
 <div align="center">
   <img src="https://media1.tenor.com/m/wTwZ94x1BJAAAAAd/genshin-genshin-impact.gif" width="100"
 </div>
@@ -39,6 +43,8 @@ hoyogames , crk , alnst , slow damage , okegom , arcane , wuwa , pjsk , jujutsu 
 # My favorite pairings:
 
 gallagher/sunday , gojo/geto , rerir/flins OR rerir/tholindis 
+
+###### я НЕ осуждаю людей за пейринги и НЕ люблю, когда осуждают меня. всё, что я говорю - шутки. 
 
 ---
 
@@ -50,7 +56,10 @@ gallagher/sunday , gojo/geto , rerir/flins OR rerir/tholindis
 
 # DNI:
 
-toxic , перегибающий палку рофл , расизм , мизогиния , гомофобы , гетерофобы, тфобы , русофобы
+### если вы любите игнорить и не проявляете инициативу в ответ GET OUT
+
+toxic , necro/pedo/zoo-philia , w*r supporter , racism , people from the past 
+###### привет хиро и маша которые все ещё приебываются ко мне и моим друзьям спустя два года и мониторят мой гитхаб btw рада что смогла настолько вас задеть
 
 ---
 
@@ -69,4 +78,6 @@ VANA , FORTUNA 812 , pepel nahudi , odetari , IC3PEAK , юпи , DADAROMA , тр
   <img src="https://media1.tenor.com/m/Z_T7WTYcsaMAAAAC/rerir-genshin.gif" width="500"
 </div>
 
-целуй меня в лицо] а говно в сиськах
+---
+
+thats all. 
