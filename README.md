@@ -32,7 +32,7 @@ ru/eng
 
 ---
 
-# 𝐹𝒶𝓃𝒹𝑜𝓂𝓈... 
+# ✧ 𝐹𝒶𝓃𝒹𝑜𝓂𝓈... 
 
 </div>
   <img src="https://media.tenor.com/eM8PAccu3YUAAAAj/וופל.gif" width="30"
@@ -46,7 +46,7 @@ ru/eng
 
 ---
 
-# 𝒟𝒩𝐼...
+# ✧ 𝒟𝒩𝐼...
 
 </div>
   <img src="https://media.tenor.com/eM8PAccu3YUAAAAj/וופל.gif" width="30"
@@ -64,4 +64,4 @@ toxic , necro/pedo/zoo-philia , w*r supporter , racism , people from the past
   <img src="https://media1.tenor.com/m/lTfcSogzATIAAAAd/byler-mike-x-will.gif" width="300"
 </div>
 
-𝓉𝒽𝒶𝓉𝓈 𝒶𝓁𝓁.
+... 𝓉𝒽𝒶𝓉𝓈 𝒶𝓁𝓁.
