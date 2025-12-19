@@ -65,3 +65,7 @@ toxic , necro/pedo/zoo-philia , w*r supporter , racism , people from the past
 </div>
 
 ... 𝓉𝒽𝒶𝓉𝓈 𝒶𝓁𝓁.
+
+<div align="center">
+ <div align="center"> <img src="https://media.tenor.com/rx5yDgZCNKEAAAAi/star-kawaii-kawaii.gif" width="30"
+</div> 
